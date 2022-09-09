@@ -64,11 +64,20 @@
 
 ![image](https://user-images.githubusercontent.com/112850035/189279020-da8161c2-4e74-464c-ab40-bbca11ca6d84.png)
 
-Здание 5 и 6 одинаковы
+Здание 7 
 
-![image](https://user-images.githubusercontent.com/112850035/189279033-3cb0dc61-e841-42e7-aa5f-cb141759397f.png)
+![image](https://user-images.githubusercontent.com/112850035/189279643-b99f53a1-d533-439a-a83c-6feb2dfa11ee.png)
 
-![image](https://user-images.githubusercontent.com/112850035/189279074-2560c195-e19f-4e3a-9947-692982a427b8.png)
+![image](https://user-images.githubusercontent.com/112850035/189279654-a814ba89-9b77-4e19-b4cd-dac02b80dc1b.png)
+
+Задание 5 и 6 одинаковы 
+
+![image](https://user-images.githubusercontent.com/112850035/189279764-532d11db-3131-4477-b75f-0458d04376fd.png)
+
+![image](https://user-images.githubusercontent.com/112850035/189279799-a7c81b28-e2e7-4623-92d6-f81f3fb42120.png)
+
+
+
 
 
 
