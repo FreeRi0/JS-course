@@ -64,7 +64,7 @@
 
 ![image](https://user-images.githubusercontent.com/112850035/189279020-da8161c2-4e74-464c-ab40-bbca11ca6d84.png)
 
-Здание 7 
+Здание 8
 
 ![image](https://user-images.githubusercontent.com/112850035/189279643-b99f53a1-d533-439a-a83c-6feb2dfa11ee.png)
 
