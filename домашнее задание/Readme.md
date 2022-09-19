@@ -103,6 +103,45 @@
 
 
 
+![image](https://user-images.githubusercontent.com/112850035/191070060-4acdfe86-bbc0-4bf3-ba14-d099fd86c222.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191070092-ee678201-7a69-4d85-9424-08aac157a4ae.png)
+
+задание 1
+
+![image](https://user-images.githubusercontent.com/112850035/191070136-598b538a-cd52-4910-b002-653e206f9e31.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191070176-391ea8b3-fc9f-4a46-882c-01006ae68727.png)
+
+задание 2
+
+![image](https://user-images.githubusercontent.com/112850035/191070894-af9e0b75-0d29-4834-9997-e06bb4831bf8.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191070927-7e60bafc-875c-427f-826f-8ec9764f7caa.png)
+
+
+задание 3
+
+![image](https://user-images.githubusercontent.com/112850035/191071012-f4b41821-542c-4ec6-bf90-2fcb589c62c6.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191071037-7fcc21aa-8129-4633-a8b2-f4c77dcb4997.png)
+
+
+задание 4
+
+![image](https://user-images.githubusercontent.com/112850035/191071109-bf28c4d3-b898-410a-aa5e-a2caeb70df4b.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191071137-f7a0822d-7b82-4039-9c81-4fda24cf5759.png)
+
+задание 5
+
+![image](https://user-images.githubusercontent.com/112850035/191071190-c2e9a9ea-a65a-4ec6-ba08-dfcf48793054.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191071231-8055e6c7-24e2-4134-ac4f-9d4879a4c963.png)
+
+
+
+
 
 
 
