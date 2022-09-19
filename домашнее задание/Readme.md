@@ -154,3 +154,45 @@
 
 
 
+![image](https://user-images.githubusercontent.com/112850035/191072936-9eec9ea2-0e87-4200-98b0-061006dbba1c.png)
+
+
+Задание 1
+
+![image](https://user-images.githubusercontent.com/112850035/191073008-a6d6c8e8-3421-4f4c-b16e-aada757e69d9.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191073068-ad401590-19b3-4594-a2d5-54f9b2036485.png)
+
+Задание 2
+
+![image](https://user-images.githubusercontent.com/112850035/191073116-f15cb1a4-375f-4b63-82d1-44cd89ffcbfa.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191073181-5d41b6d9-dcf4-42b2-bc78-c86d10105ca1.png)
+
+Задание 3
+
+![image](https://user-images.githubusercontent.com/112850035/191073296-44fe0422-84f3-4809-a3fe-6f28aa213064.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191073347-60161335-6e2e-4fe4-ab15-6b869aa4e1b7.png)
+
+
+Задание 4 к сожалению не смог выполнить
+
+Задание 5
+
+![image](https://user-images.githubusercontent.com/112850035/191073483-b513cb87-1075-4fca-b662-747521c4cb44.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191073545-0105038c-5071-469c-acf6-65fe020d32a0.png)
+
+Задание 6
+
+![image](https://user-images.githubusercontent.com/112850035/191073620-6d9c748a-d29e-4b5d-a278-8e0b1464fff6.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191073663-e3dae978-4799-4f4f-928c-92dc6d5917bc.png)
+
+
+
+
+
+
+
