@@ -142,6 +142,14 @@
 
 
 
+![image](https://user-images.githubusercontent.com/112850035/191071451-cff235af-e2ae-4ec4-9de8-24cbda4127cd.png)
+
+
+задание 1 и 2 (2 задание наполовину получилось сделать)
+
+![image](https://user-images.githubusercontent.com/112850035/191071795-2f64dbb7-7f90-4074-865e-d5ca8573f0fd.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191071833-85813b80-980f-4f72-881a-4de8208b642b.png)
 
 
 
