@@ -214,6 +214,25 @@
 
 Задание 5
 
+![image](https://user-images.githubusercontent.com/112850035/191327997-109eb1dc-3e67-4abf-81f7-f267728bb12b.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191328056-562441e7-1a08-473e-88e4-20116f1e403b.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191328097-3f03b867-9d6f-4d0d-9e4f-e85f73ed871a.png)
+
+Задание 6
+
+![image](https://user-images.githubusercontent.com/112850035/191328154-4b51825c-0ea1-4191-a5ef-b2bf64e9bd8b.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191328229-fdced89a-cda7-44fc-8c4a-396e6aecaf90.png)
+
+Задание 7
+
+![image](https://user-images.githubusercontent.com/112850035/191328295-45484063-06dd-4560-b458-2b87c0f0de4f.png)
+
+![image](https://user-images.githubusercontent.com/112850035/191328381-472c0eff-12f7-4420-a133-1fb387018621.png)
+
+
 
 
 
