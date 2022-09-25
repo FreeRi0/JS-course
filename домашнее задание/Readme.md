@@ -235,7 +235,56 @@
 
 
 
+![image](https://user-images.githubusercontent.com/112850035/192158710-e4ab4920-ceea-40a9-aab6-7777350b12a6.png)
 
+
+Задание 1
+
+![image](https://user-images.githubusercontent.com/112850035/192158765-aaa5c920-372e-4de6-ab18-493c199e77b9.png)
+
+![image](https://user-images.githubusercontent.com/112850035/192158781-f0827eb3-ea68-41b8-8625-91a8326a3c0f.png)
+
+Задание 2 
+
+![image](https://user-images.githubusercontent.com/112850035/192158803-05d03dc9-4ed1-484d-a1ed-c8cb954a06b3.png)
+
+![image](https://user-images.githubusercontent.com/112850035/192158817-f75a99b5-bad0-429b-a5f3-a271f6cda13e.png)
+
+Задание 3
+
+![image](https://user-images.githubusercontent.com/112850035/192158913-b0f70207-7f12-4cef-a661-103c08c03507.png)
+
+![image](https://user-images.githubusercontent.com/112850035/192158936-2c3567c6-38a1-4cf1-9902-0089250851ed.png)
+
+Задание 4
+
+![image](https://user-images.githubusercontent.com/112850035/192158962-858f9ce7-a88f-463c-9eab-f8291d2c8db0.png)
+
+![image](https://user-images.githubusercontent.com/112850035/192158986-532cd062-fcc0-4367-906e-05a9eb330950.png)
+
+
+![image](https://user-images.githubusercontent.com/112850035/192159012-deebb88c-aea9-47c7-b8eb-0e6b8d5d44ee.png)
+
+![image](https://user-images.githubusercontent.com/112850035/192159027-244b2117-b700-429e-90fd-971639658a47.png)
+
+
+Задание 5
+
+![image](https://user-images.githubusercontent.com/112850035/192159048-a002cee8-e956-4ccd-8291-01de80740626.png)
+
+![image](https://user-images.githubusercontent.com/112850035/192159064-53000d13-b0bc-448b-ba0f-9217ce9e05dd.png)
+
+Задание 6 
+
+![image](https://user-images.githubusercontent.com/112850035/192159114-dc9ae86a-cd1e-41ce-9198-181cb1e63898.png)
+
+![image](https://user-images.githubusercontent.com/112850035/192159224-81bdc9b7-fbfc-44c9-ba73-bf4bd0815b0a.png)
+
+Задание 7
+
+![image](https://user-images.githubusercontent.com/112850035/192159232-6bfcdb1d-9170-4aab-a144-79e5225cf2a1.png)
+
+![image](https://user-images.githubusercontent.com/112850035/192159242-adb3cc61-68fe-4736-b4f3-b622d9ff5018.png)
 
 
 
